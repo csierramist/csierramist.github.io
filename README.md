@@ -5,5 +5,6 @@ This readme file is dedicated to introduce you to my webpage before actually cli
 
 ![Jak](http://psnprofiles.com/lib/img/games/bf812e/Lf0abf0.png)
 ![Jak](http://static.giantbomb.com/uploads/original/1/13757/886824-jak3_03.jpg)
+![Precursor](http://vignette2.wikia.nocookie.net/jakanddaxter/images/b/be/Forbidden_Jungle_4.png/revision/latest?cb=20140415195458)
 
-[click here](http://csierramist.github.io/WPD) to see my class webpage
+[click here](http://csierramist.github.io/WPD) to see my class webpage :shipit::shipit::shipit::shipit::shipit::shipit::shipit::shipit:
